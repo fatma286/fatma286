@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Fatma Mohamed Salama
-- 📖 I’m currently studying Electronics and Communication Engineering in Cairo University Faculty of Engineering
+- 📖 I’m currently studying Electronics and Electrical Communication Engineering in Cairo University Faculty of Engineering
 - 💗 I’m interested in learning and innovating
 
 
